@@ -1,3 +1,1 @@
-## Hi I am Agyar, yes.
-
-## I am from bandung
+## 👋 Hi! I am Agyar.
